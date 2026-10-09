@@ -1,7 +1,7 @@
 ✝︎ Saviola ✝︎
 =============================================================================================================================
 
-<img width="448" height="498" alt="reze-tongue-out-reze-chainsaw-man-moving-her-head" src="https://github.com/user-attachments/assets/24d89b27-0076-42ec-af86-223faf3fd5cd" />
+<img width="448" height="498" alt="reze-tongue-out-reze-chainsaw-man-moving-her-head" src="https://github.com/user-attachments/assets/dcc6ea71-0276-4c71-8918-f72340ecf58b" />
 
 ## ⛧ LANG ⛧
 + Thai ★★★★★
@@ -17,6 +17,6 @@
 + Product Distribution ★★☆☆☆
 --------------------------------------------------------------------------------------------
 
-<img width="409" height="333" alt="giphy (2)" src="https://github.com/user-attachments/assets/1a550a92-5065-449f-9de1-4dc2d0ecfdc2" />
+<img width="409" height="333" alt="giphy (2)" src="https://github.com/user-attachments/assets/93e7f3a2-0a13-4d8b-aea8-6099c1e769ef" />
 
 --------------------------------------------------------------------------------------------
