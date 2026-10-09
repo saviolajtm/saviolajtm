@@ -14,7 +14,9 @@
 + Project Management ★★★★★
 + Import & Export ★★★☆☆
 + Event Organize ★★★☆☆
++ Creative (Media & Ads) ★★★☆☆
 + Product Distribution ★★☆☆☆
++ 3D Rigger ★★☆☆☆
 --------------------------------------------------------------------------------------------
 
 <img width="409" height="333" alt="giphy (2)" src="https://github.com/user-attachments/assets/93e7f3a2-0a13-4d8b-aea8-6099c1e769ef" />
