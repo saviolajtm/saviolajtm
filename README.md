@@ -1,16 +1,22 @@
-## Hi there 👋
+✝︎ Saviola ✝︎
+=============================================================================================================================
 
-<!--
-**saviolajtm/saviolajtm** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+<img width="448" height="498" alt="reze-tongue-out-reze-chainsaw-man-moving-her-head" src="https://github.com/user-attachments/assets/24d89b27-0076-42ec-af86-223faf3fd5cd" />
 
-Here are some ideas to get you started:
+## ⛧ LANG ⛧
++ Thai ★★★★★
++ English ★★★★★
++ Chinese ★★★★☆
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+## 𖤐 SKILL 𖤐
++ Game Design ★★★★★
++ System Design ★★★★★
++ Project Management ★★★★★
++ Import & Export ★★★☆☆
++ Event Organize ★★★☆☆
++ Product Distribution ★★☆☆☆
+--------------------------------------------------------------------------------------------
+
+<img width="409" height="333" alt="giphy (2)" src="https://github.com/user-attachments/assets/1a550a92-5065-449f-9de1-4dc2d0ecfdc2" />
+
+--------------------------------------------------------------------------------------------
