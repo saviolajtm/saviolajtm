@@ -3,6 +3,9 @@
 
 <img width="448" height="498" alt="reze-tongue-out-reze-chainsaw-man-moving-her-head" src="https://github.com/user-attachments/assets/dcc6ea71-0276-4c71-8918-f72340ecf58b" />
 
+<img width="1206" height="1191" alt="re" src="https://github.com/user-attachments/assets/78a679d8-1510-4df0-abe9-ed37918cf84d" />
+
+
 ## ⛧ LANG ⛧
 + Thai ★★★★★
 + English ★★★★★
