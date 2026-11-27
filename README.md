@@ -5,7 +5,7 @@
 
 ## 𖤐 ABOUT ME 𖤐
 + Salmon Pink Studio's Co-Founder
-+ (COS HARU)Palettework Founder's Team
++ (COS HARU) Palettework Founder's Team
 
 ## ⛧ LANG ⛧
 + Thai ★★★★★
