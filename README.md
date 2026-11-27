@@ -4,8 +4,8 @@
 <img width="1206" height="1191" alt="moodcards" src="https://github.com/user-attachments/assets/e7f74798-76d5-4ce4-a317-f44bf65da8e8" />
 
 ## 𖤐 ABOUT ME 𖤐
-+ --------'s Co-Founder
-+ -------- Founder's Team
++ Salmon Pink Studio's Co-Founder
++ (COS HARU)Palettework Founder's Team
 
 ## ⛧ LANG ⛧
 + Thai ★★★★★
